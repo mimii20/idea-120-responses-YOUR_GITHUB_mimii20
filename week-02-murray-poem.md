@@ -12,3 +12,5 @@ Be Not Afraid, as it holds many secrets for you and I
     
 **And these secrets may be expressed in ways so all who breathe can understand.**   
 
+![Go explore](https://w0.peakpx.com/wallpaper/823/172/HD-wallpaper-the-gate-gate-art-luminos-pixie-dust-fireflies-fantasy-digital-magical-light-blue.jpg)
+
