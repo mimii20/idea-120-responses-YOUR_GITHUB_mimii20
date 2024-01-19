@@ -1,6 +1,6 @@
 # The Rules of the Game
 
-! [https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.wsj.com%2Farticles%2Fthe-secret-messages-of-swaying-trees-11574350152&psig=AOvVaw0CvN726wKR0rsHeARbfUct&ust=1705721528725000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCOD-6oPC6IMDFQAAAAAdAAAAABAD]
+! [(https://s.wsj.net/public/resources/images/B3-FM562_CZERSK_SOC_20191119103959.jpg)]
 Rules are written to be followed, and I shall follow   
 I invite you to play this game, though...    
 The realm we play it in is far and wide    
