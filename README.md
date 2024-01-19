@@ -1,2 +1,2 @@
-# idea-120-responses-YOUR_GITHUB_mimii20
+# idea-120-responses-mimii20
 5 line Murray poem
