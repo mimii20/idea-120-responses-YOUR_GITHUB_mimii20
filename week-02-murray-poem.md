@@ -4,9 +4,9 @@
 
 Rules are written to be followed, and I shall follow   
    
-I invite you to play this game, though...    
+I invite you to play this game, since you are not foe       
    
-The realm we play it in is far and wide  
+The realm we play it in is vast and wide  
     
 Be Not Afraid, as it holds many secrets for you and I 
     
