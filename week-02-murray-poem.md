@@ -10,7 +10,7 @@ The realm we play it in is vast and wide
     
 Be Not Afraid, as it holds many secrets for you and I 
     
-**Which will be expressed in ways that you and I can understand.**   
+**Though expressed in puzzles, we will eventually come to understand.**   
 
 ![Go explore](https://w0.peakpx.com/wallpaper/823/172/HD-wallpaper-the-gate-gate-art-luminos-pixie-dust-fireflies-fantasy-digital-magical-light-blue.jpg)
 
