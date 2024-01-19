@@ -1,6 +1,6 @@
 # The Rules of the Game
 
-![(https://s.wsj.net/public/resources/images/B3-FM562_CZERSK_SOC_20191119103959.jpg)]      
+![Adventure Start](https://s.wsj.net/public/resources/images/B3-FM562_CZERSK_SOC_20191119103959.jpg)      
 Rules are written to be followed, and I shall follow   
 I invite you to play this game, though...    
 The realm we play it in is far and wide    
